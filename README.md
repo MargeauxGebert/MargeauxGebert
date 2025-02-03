@@ -5,6 +5,6 @@ Born and raised in Lübeck, Germany. Also got there my diploma for graphic desig
 ![Margeaux' love for London](https://images.unsplash.com/photo-1513635269975-59663e0ac1ad?q=80&w=1740&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
 
 ##### Favourites
-- My dog
-- Crocheting
-- London (obviously)
+> My dog
+>  Crocheting
+> London (obviously)
