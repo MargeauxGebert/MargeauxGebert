@@ -6,6 +6,7 @@
 - motivated
 - sometimes moody exspecially if not well rested
 - having the black belt in procrastinating but choose to use it wisely
+- movie/series quotes subscription for free and no possibility to cancel
 - funny (if somebody don't think so, they're not well educated)
 
 ---
